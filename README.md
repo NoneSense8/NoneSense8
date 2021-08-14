@@ -1,0 +1,8 @@
+- �Hi, I’m @NoneSense8
+- �I’m interested in GAMING.
+- �I’m currently learning finding friends.
+- �I’m looking to collaborate on playing Roblox with other people.
+- �How to reach me Discord: NoneSense#3530
+- �I play Games.
+- �My main Social Media is Discord.
+- �USername on roblox:xxdudepurfect_873xx (Please don't judge)
